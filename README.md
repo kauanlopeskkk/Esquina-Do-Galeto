@@ -1,2 +1,0 @@
-# Esquina-Do-Galeto
- 
